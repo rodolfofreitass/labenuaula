@@ -1,0 +1,1 @@
+Me chamo Rodolfo, tenho 27 anos, moro em Planaltina-DF, sou formado em Sistemas de Informação, gosto de carros, jogos, futebol e demais esportes e hoje sou estudante da Labenu.
